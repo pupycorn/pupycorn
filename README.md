@@ -14,4 +14,4 @@ ${{\color{#ffffff}{\textsf{CHECK OUT MY MAIN!! }}}}$
 
 <div align="center">
 
-[@5ojo](https://github.com/5ojo) ![ALT](https://files.catbox.moe/v4ooz3.gif) 
+[@nassecest](https://github.com/nassecest) ![ALT](https://files.catbox.moe/v4ooz3.gif) 
