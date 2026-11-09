@@ -1,17 +1,17 @@
 <div align="center">
   
-${{\color{#ffffff}{\textsf{SPAM FOLLOW ACCOUNT }}}}$
+${{\color{#FFFFD5}{\textsf{SPAM FOLLOW ACCOUNT }}}}$
 <br>
 
 <div align="center">
 
-![Alt](https://files.catbox.moe/zb7idm.png)
+![Alt](https://cdn.phototourl.com/member/2026-11-09-00135160-31d7-4306-ab14-05250652be3e.png)
 
 <div align="center">
   
-${{\color{#ffffff}{\textsf{CHECK OUT MY MAIN!! }}}}$
+${{\color{#FFDECA}{\textsf{check out me and my bf's gh}}}}$
 <br>
 
 <div align="center">
 
-[@buncest](https://github.com/buncest) ![ALT](https://files.catbox.moe/v4ooz3.gif) 
+[@buncest](https://github.com/buncest) [@jinwoo-cest](https://github.com/jinwoo-cest) ![ALT](https://cdn.phototourl.com/member/2026-11-09-fcf97264-82f5-433e-bd4d-b590abf3c522.gif) 
