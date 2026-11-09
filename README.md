@@ -14,4 +14,4 @@ ${{\color{#FFDECA}{\textsf{check out me and my bf's gh}}}}$
 
 <div align="center">
 
-[@buncest](https://github.com/buncest) [@jinwoo-cest](https://github.com/jinwoo-cest) ![ALT](https://cdn.phototourl.com/member/2026-11-09-fcf97264-82f5-433e-bd4d-b590abf3c522.gif) 
+[@buncest](https://github.com/buncest) [@leoncest](https://github.com/leoncest) ![ALT](https://cdn.phototourl.com/member/2026-11-09-fcf97264-82f5-433e-bd4d-b590abf3c522.gif) 
